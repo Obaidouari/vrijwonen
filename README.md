@@ -1,2 +1,0 @@
-# vrijwonen
-vrijwonen project
